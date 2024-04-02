@@ -1,0 +1,1 @@
+El MREMH ha recibido un requerimiento del gobierno central para identificar grupos o segmentos de acuerdo con las características de los solicitantes. Esto con la finalidad de tomar acciones de mejora.
